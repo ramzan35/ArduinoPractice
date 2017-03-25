@@ -1,2 +1,0 @@
-# RAMA
-Programmer
